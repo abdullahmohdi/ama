@@ -7,7 +7,7 @@ Hello there!
 
 I get a lot of questions by email. This way anyone can read the answer!
 
-Anything means *anything*. Personal questions. Money. Work. Life. Code. Whatever.
+Anything means *anything*. Personal questions. Changing career, Coding Bootcamps, Interview Preparations, Internships, Life. Whatever.
 
 ---
 ## You can contact me through email:
