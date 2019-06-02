@@ -18,7 +18,7 @@ My personal email is `abdullahh490[at]gmail[dot]com`.
 I would love to connect with you and answer your questions. 
 
 > <https://twitter.com/abdullahmohd91>
-
+> <https://linkedin.com/in/abdullahmohammadi>
 ---
 
 ### Guidelines
